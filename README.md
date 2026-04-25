@@ -37,7 +37,7 @@ Before switching fully to Computer Science, I worked for 2 years as an **Install
 ### 📫 Contact
 
 - ✉️ therezayiii@gmail.com
-- 💼 LinkedIn: *coming soon*
+- 💼 LinkedIn:https://www.linkedin.com/in/ali-rezaei-jaghanab 
 
 ---
 
